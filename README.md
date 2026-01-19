@@ -6,7 +6,7 @@
 <div align="center">
  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Tektur&size=30&duration=3500&pause=5000&color=FE5FA7&center=true&multiline=true&width=800&height=79&lines=I+am+Miss+Kawaii,+but+you+can+call+me+Kawaii~Chan!." alt="Typing SVG" /></a>
 
-   ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=rainingindecember&color=bc2464&style=plastic&label=Viewers.) <!-- this is a profile view counter! make sure to edit "YOUR-GITHUB-USERNAME"! --> ![unnamed](https://files.catbox.moe/srp2r6.png) <img alt="followers" title="Follow me on Github" src="https://img.shields.io/github/followers/rainingindecember?color=FE5FA7&style=plastic&abbreviated=false&label=Kitties."/> <!-- this is a follower counter! make sure to edit "YOUR-GITHUB-USERNAME"! -->
+   ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=rainingindecember&color=FE5FA7&style=plastic&label=Viewers.) <!-- this is a profile view counter! make sure to edit "YOUR-GITHUB-USERNAME"! --> ![unnamed](https://files.catbox.moe/srp2r6.png) <img alt="followers" title="Follow me on Github" src="https://img.shields.io/github/followers/rainingindecember?color=FE5FA7&style=plastic&abbreviated=false&label=Kitties."/> <!-- this is a follower counter! make sure to edit "YOUR-GITHUB-USERNAME"! -->
 
 ${{\color{#FE5FA7}\Large{\textsf{♡ WELCOME!\}}}}\$
   
