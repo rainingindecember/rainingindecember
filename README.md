@@ -7,6 +7,8 @@
  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Tektur&size=30&duration=3500&pause=5000&color=bc2464&center=true&multiline=true&width=800&height=79&lines=I+am+Miss+Kawaii,+but+you+can+call+me+Kawaii~Chan!." alt="Typing SVG" /></a>
 
    ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=rainingindecember&color=bc2464&style=plastic&label=Viewers.) <!-- this is a profile view counter! make sure to edit "YOUR-GITHUB-USERNAME"! --> ![unnamed](https://files.catbox.moe/srp2r6.png) <img alt="followers" title="Follow me on Github" src="https://img.shields.io/github/followers/rainingindecember?color=bc2464&style=plastic&abbreviated=false&label=Kitties."/> <!-- this is a follower counter! make sure to edit "YOUR-GITHUB-USERNAME"! -->
+
+${{\color{#bc2464}\Large{\textsf{02 WELCOME!\}}}}\$
   
 <p align="center"> HAII! im robin, but i am seen as kawaii chan on PT and discord =0^0= I am 15yo and have audhd + am pansexual YAY! If you couldnt tell.. kawaii chan is my fav character oke... 👀 BUT I LUV OTHER CHARACTERS AND FANDOMS 2! 
 
