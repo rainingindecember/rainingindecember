@@ -19,6 +19,6 @@ ${{\color{#FE5FA7}\Large{\textsf{•⩊• BYI!\}}}}\$
 
 ${{\color{#FE5FA7}\Large{\textsf{•⩊• EXT!\}}}}\$
 
-<p align="center"> As you can tell, i luv kawaii chan a lot!!! But I dont identify as her, she is my fav character but she is her own person as well :3 
+<p align="center"> As you can tell, i luv kawaii chan a lot!!! But I dont identify as her, she is my fav character but she is her own person as well :3 I am not a fictionkin nor do i kin kawaii chan
 
 <p align="center"> <img src="https://files.catbox.moe/v5l9ru.png" alt="meow" />
