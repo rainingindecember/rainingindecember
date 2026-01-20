@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://files.catbox.moe/cus35k.png" alt="hi" />
+<p align="center"> <img src="https://files.catbox.moe/cus35k.png" alt="meow" />
 
 <div align="center">
  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Tektur&size=30&duration=3500&pause=5000&color=FE5FA7&center=true&multiline=true&width=800&height=79&lines=I+am+Miss+Kawaii,+but+you+can+call+me+Kawaii~Chan!." alt="Typing SVG" /></a>
@@ -13,4 +13,4 @@ ${{\color{#FE5FA7}\Large{\textsf{♡ WELCOME!\}}}}\$
 
 <p align="center"> i work on this l8r oke?oke
 
-<p align="center"> <img src="https://files.catbox.moe/v5l9ru.png" alt="hi" />
+<p align="center"> <img src="https://files.catbox.moe/v5l9ru.png" alt="meow" />
