@@ -7,7 +7,7 @@
 
 ${{\color{#FE5FA7}\Large{\textsf{•⩊• WELCOME!\}}}}\$
   
-<p align="center"> HAII! im robin, but i am seen as kawaii chan on PT and discord =0^0= I am 15yo and have audhd + am pansexual YAY! If you couldnt tell.. kawaii chan is my fav character... 👀 BUT I LUV OTHER CHARACTERS AND FANDOMS 2! 
+<p align="center"> HAII! im robin, but i am seen as kawaii chan on PT and discord =0^0= I am 15yo and have audhd + am pansexual YAY! If you couldnt tell.. kawaii~chan is my fav character... 👀 BUT I LUV OTHER CHARACTERS AND FANDOMS 2! 
 
 <p align="center"> i like 2 sit at docks and I am open to cud wit people, and also have fun in regis ꉂ(˵˃ ᗜ ˂˵) I do like 2 be very energetic and ☆POSITIVE☆ but at sum times i am very shy ╥﹏╥ but if you talk 2 me then i am more than happi 2 talk 2 you!!!!!!!!!
 
@@ -19,8 +19,8 @@ ${{\color{#FE5FA7}\Large{\textsf{•⩊• BYI!\}}}}\$
 
 ${{\color{#FE5FA7}\Large{\textsf{•⩊• EXT!\}}}}\$
 
-<p align="center"> As you can tell, i luv kawaii chan a lot!!! But I dont identify as her, she is my fav character but she is her own person as well :3 I am not a fictionkin nor do i kin kawaii chan
+<p align="center"> As you can tell, i luv kawaii chan a lot!!! But i dont identify as her, she is my fav character but she is her own person as well :3 i am not a fictionkin nor do i kin kawaii~chan. i do luv to B called kawaii~chan, mostly cuz i see it as cosplaying her! :D
 
-<p align="center"> I am madly in luv of the sunshine x grumpy trope!! Like kawaii chan x zane & amy x shadow, or just cute pairs that arent ships like cat nyan and tac nayn!!!! =ÓwÒ=
+<p align="center"> I am madly in luv of the sunshine x grumpy trope!! Like kawaii~chan x zane & amy x shadow, or just cute pairs that arent ships like cat nyan and tac nayn!!!! =ÓwÒ=
 
 <p align="center"> <img src="https://files.catbox.moe/v5l9ru.png" alt="meow" />
