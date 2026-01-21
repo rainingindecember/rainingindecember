@@ -3,7 +3,9 @@
 <div align="center">
  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Tektur&size=30&duration=3500&pause=5000&color=FE5FA7&center=true&multiline=true&width=800&height=79&lines=I+am+Miss+Kawaii,+but+you+can+call+me+Kawaii~Chan!" alt="Typing SVG" /></a>
 
-   ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=rainingindecember&color=FE5FA7&style=plastic&label=VIEWERS.) <!-- this is a profile view counter! make sure to edit "YOUR-GITHUB-USERNAME"! --> ![unnamed](https://files.catbox.moe/lm30tx.png) <img alt="followers" title="Follow me on Github" src="https://img.shields.io/github/followers/rainingindecember?color=FE5FA7&style=plastic&abbreviated=false&label=KITTIES."/> <!-- this is a follower counter! make sure to edit "YOUR-GITHUB-USERNAME"! -->
+   ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=rainingindecember&color=FE5FA7&style=plastic&label=VIEWERS.) <!-- this is a profile view counter! make sure to edit "YOUR-GITHUB-USERNAME"! --> ![unnamed](https://files.catbox.moe/lm30tx.png) <img alt="GitHub followers" src="https://img.shields.io/github/followers/rainingindecember?style=flat&label=KITTIEE;&labelColor=FE5FA7&color=FE5FA7">
+
+<img src="https://visitor-badge.laobi.icu/badge?page_id=rainingindecember.rainingindecember&left_color=FE5FA7&right_color=FE5FA7&left_text=VISITORS;"/>
 
 ${{\color{#FE5FA7}\Large{\textsf{•⩊• WELCOME!\}}}}\$
   
