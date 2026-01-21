@@ -15,6 +15,8 @@ ${{\color{#FE5FA7}\Large{\textsf{•⩊• BYI!\}}}}\$
 
 <p align="center"> i like 2 give the benefit of doubt that there is good deep down in every1, and want 2 give a chance (..◜ᴗ◝..) but I know that sumtimes that is not the case with every1 and they wont change, but regardless i will always root 4 their development and hope every1 can be happi and healthy!!!!! I do want 2 let every1 know that if you dont follow the basic DNI like "dni if proshipper, pedo, being weird in gen" then I prolly wont like 2 talk 2 you (◞‸ ◟) just know that if you are these kinds of things, i hope you seek the help you need and realize what you are doing =^♡^=
 
+<p align="center"> When talking 2 me, plez keep swearing at a minimal!!! You dont hav 2 stop swearing at all, just dont put like a billion swear words in 1 sentence :D This is cuz swearing makes me a bit uncomfortable since whenever i get yelled at, a lota swear words would B used and sometimes makes me cri _ _;;;;;; i might swear myself but it is mostly cuz i repeat things i hear other people say
+
 <p align="center"> Anotha thing to note is that if I put down boundaries, plez respect it! I luv talking and hanging out wit people :D but I will ask to tone things down and stuf like that
 
 ${{\color{#FE5FA7}\Large{\textsf{•⩊• EXT!\}}}}\$
