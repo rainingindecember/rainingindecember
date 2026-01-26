@@ -27,6 +27,6 @@ ${{\color{#FE5FA7}\Large{\textsf{•⩊• EXT!\}}}}\$
 
 <p align="center"> This is me below!!!!!!! 
 
-<p align:"center"> <img src="https://files.catbox.moe/0xi74f.webp"alt="meow" />
+<p align:"center"> <img src="https://files.catbox.moe/4peyny.webp"alt="meow" />
 
 <p align="center"> <img src="https://files.catbox.moe/v5l9ru.png" alt="meow" />
