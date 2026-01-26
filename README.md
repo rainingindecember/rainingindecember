@@ -25,6 +25,8 @@ ${{\color{#FE5FA7}\Large{\textsf{•⩊• EXT!\}}}}\$
 
 <p align="center"> I am madly in luv of the sunshine x grumpy trope!! Like kawaii~chan x zane & amy x shadow, isabelle x doom slayer, or just cute pairs that arent ships like cat nyan & tac nayn, my melody & kuromi, etc!!!! =ÓwÒ=
 
+<p align="center"> This is me below!!!!!!! 
+
 <p align:"center"> <img src="https://files.catbox.moe/0xi74f.webp"alt="meow" />
 
 <p align="center"> <img src="https://files.catbox.moe/v5l9ru.png" alt="meow" />
