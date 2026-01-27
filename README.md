@@ -23,7 +23,7 @@ ${{\color{#FE5FA7}\Large{\textsf{•⩊• EXT!\}}}}\$
 
 <p align="center"> As you can tell, i luv kawaii chan a lot!!! But i dont identify as her, she is my fav character but she is her own person as well :3 i am not a fictionkin nor do i kin kawaii~chan. i do luv to B called kawaii~chan, mostly cuz i see it as cosplaying her! :D
 
-<p align="center"> I am madly in luv of the sunshine x grumpy trope!! Like kawaii~chan x zane & amy x shadow, isabelle x doom slayer, or just cute pairs that arent ships like cat nyan & tac nayn, my melody & kuromi, etc!!!! =ÓwÒ=
+<p align="center"> I am madly in luv of the sunshine x grumpy trope!! Like kawaii~chan x zane, amy x shadow (or metal), isabelle x doom slayer, or just cute pairs that arent ships like cat nyan & tac nayn, my melody & kuromi, mangle & foxy, etc!!!! =ÓwÒ=
 
 <p align="center"> This is me below!!!!!!! 
 
